@@ -1,1 +1,1 @@
-# NFSU2-Turkish-T-rk-e-Dubbed-Cutscenes
+# NFSU2-Turkish-Turkce-Dubbed-Cutscenes
